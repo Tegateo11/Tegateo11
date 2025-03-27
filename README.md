@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tegateo11
 - 👀 I’m interested in Fashion and Coke (diet)
 - 🌱 I’m currently learning how to become Millionare 
-- 💞️ I’m looking to collaborate on Conr Web Pages (jk)
+- 💞️ I’m looking to collaborate on BornHup Web Pages (jk)
 - 📫 How to reach me: Smoke signals
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Im not a pro grammer. 
